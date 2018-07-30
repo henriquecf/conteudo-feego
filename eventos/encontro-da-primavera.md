@@ -15,7 +15,7 @@ Rossandro Klinjey
 
 ### Programação:
 
-#### SÁBADO (22/09)
+##### SÁBADO (22/09)
 - 14h00 - Abertura/ Cerimonial
 - 14h05 /14h25- Grande Coro
 - 14h25 / 14h30 - Prece
@@ -28,7 +28,7 @@ Rossandro Klinjey
 - 21h30- Prece Final
 - Encerramento/ Cerimonial 
 
-#### DOMINGO  (23/09)
+##### DOMINGO  (23/09)
 - 8h00- Abertura / Cerimonial
 - 8h05 / 8h25 -  Sopranos 
 - 8h25 / 8h30 - Prece
