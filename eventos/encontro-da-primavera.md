@@ -6,15 +6,11 @@ Aprenda. Conheça. Construa. Vivencie momentos únicos de autoconhecimento . Em 
 “(...) Quando soar a hora do repouso, e a trama da vida se vos escapar das mãos e vossos olhos se fecharem para a luz, sentireis que surge em vós e germina a minha preciosa semente (Evangelho segundo o espiritismo,  Cap. VI)”
 
 ### Os palestrantes:
-Haroldo Dutra + breve comentário sobre o palestrante
+Haroldo Dutra
 
-Roosevelt Tiago + breve comentário sobre o palestrante
+Roosevelt Tiago
 
-Rossandro Klinjey + breve comentário sobre o palestrante
-
-
-Quando eu flor, quando tu flores e ele for…
-Nós flores seremos, e o mundo florescerá!
+Rossandro Klinjey
 
 
 ### Programação:
