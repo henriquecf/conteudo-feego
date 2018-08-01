@@ -15,30 +15,30 @@ Rossandro Klinjey
 
 ### Programação:
 
-##### SÁBADO (22/09)
-- 14h00 - Abertura/ Cerimonial
-- 14h05 /14h25- Grande Coro
-- 14h25 / 14h30 - Prece
-- 14h30 / 15h45 - Palestra  com Haroldo Dutra " O meu encontro com Deus " 
-- 15h45 / 16h45 - Intervalo
-- 16h45 / 17h00 - Andressa Toledo
-- 17h00 / 18h15 - Palestra com Roosevelt Tiago " O meu encontro com o próximo " 
-- 18h20 / 19h20 - Intervalo
-- 19h20 / 21h30 - Conversando com Haroldo Dutra e participação  musical de Cacá  Rezende
-- 21h30- Prece Final
-- Encerramento/ Cerimonial 
+#### SÁBADO (22/09)
 
-##### DOMINGO  (23/09)
+- 14h00 - Abertura/ Cerimonial
+- 14h05 /14h25- Grande Coro (Apresentação Artística)
+- 14h25 / 14h30 - Prece
+- 14h30 / 15h45 - Palestra com Haroldo Dutra: "O meu encontro com Deus" 
+- 15h45 / 16h45 - Intervalo
+- 16h45 / 17h00 - Andressa Toledo (Apresentação Artística)
+- 17h00 / 18h15 - Palestra com Roosevelt Tiago: "O meu encontro com o próximo" 
+- 18h20 / 19h20 - Intervalo
+- 19h20 / 21h30 - Conversando com Haroldo Dutra e participação musical de Cacá Rezende
+- 21h30- Prece Final
+- Encerramento/ Cerimonial
+
+#### DOMINGO (23/09)
+
 - 8h00- Abertura / Cerimonial
-- 8h05 / 8h25 -  Sopranos 
+- 8h05 / 8h25 - Patrícia  Melo, Sheila di Paiva, Vanessa Bertolini e Sérgio di Paiva (Apresentação Artística)
 - 8h25 / 8h30 - Prece
-- 8h30 / 8h45- Palestra com Rossandro Klinjey  " O meu encontro comigo mesmo " 
+- 8h30 / 9h45- Palestra com Rossandro Klinjey: "O meu encontro comigo mesmo" 
 - 9h45 / 10h45 - Intervalo
-- 10h30 / 10h45 -  Seareiros de Cristo
-- 10h45 / 12h30 - Painel Interreligioso " Tempo de Florescer: Fraternidade Agora" 
-- Painelistas: Rossandro Klinjey, Roosevelt Tiago e Reitor da PUC Wolmir Amado
-- 12h30 / 12h45- Apresentação  das Crianças 
-- 12h45h - Prece Final
+- 10h30 / 10h45 – Grupo Seareiros do Cristo (Apresentação Artística)
+- 10h45 / 12h45 - Painel Inter-religioso: "Tempo de Florescer: Fraternidade Agora" - Painelistas: Rossandro Klinjey, Roosevelt Tiago e Reitor da PUC - Wolmir Therezio Amado
+- 12h45h - Prece Final 
 - Encerramento / Cerimonial
 
 ### O Local:
