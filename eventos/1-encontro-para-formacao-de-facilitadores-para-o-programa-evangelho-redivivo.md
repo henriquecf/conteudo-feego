@@ -1,7 +1,6 @@
 ### CRONOGRAMA DAS ATIVIDADES
 
 #### SÁBADO: 25 de agosto
-
 - 7:30 – 08:30 – Recepção, Credenciamento, Alegria Cristã
 - 08:30 – 09:00 – Abertura
 - 09:00 – 12:00 – Apresentação do método Estudo Minucioso do Evangelho de Jesus – EMEJ, João 16:33
@@ -12,6 +11,5 @@
 - 16:30 – 18:00 - EMEJ – Marcos 16:14
 
 #### DOMINGO: 26 de agosto
-
 - 7:30 – 08:30 – Café da Manhã / Alegria Cristã / Prece
 - 08:30 – 12:00 – Apresentação da reflexão sobre a reunião do EMEJ
