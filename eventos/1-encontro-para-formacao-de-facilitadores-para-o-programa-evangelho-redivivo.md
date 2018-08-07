@@ -1,4 +1,4 @@
-### CRONOGRAMA DAS ATIVIDADES
+#### CRONOGRAMA DAS ATIVIDADES
 
 **SÁBADO: 25 de agosto**
 - 7:30 – 08:30 – Recepção, Credenciamento, Alegria Cristã
