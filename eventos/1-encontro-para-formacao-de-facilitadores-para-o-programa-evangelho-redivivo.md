@@ -13,3 +13,19 @@
 **DOMINGO: 26 de agosto**
 - 7:30 – 08:30 – Café da Manhã / Alegria Cristã / Prece
 - 08:30 – 12:00 – Apresentação da reflexão sobre a reunião do EMEJ
+
+
+**Atenção**
+
+Os inscritos na Facilitação para o REDIVIVO deverão levar:
+1 exemplar da Bíblia - de preferência as traduções:
+A Bíblia de Jerusalém
+Ou
+A Bíblia - Edição revista e atualizada de João Ferreira de Almeida
+O Livro dos Espíritos
+O Evangelho Seguindo o Espiritismo
+O Evangelho comentado por Emmanuel :
+Evangelho de Marcos
+Evangelho de João
+
+Trata-se de material individual a ser usado nas oficinas.
