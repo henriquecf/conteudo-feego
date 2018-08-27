@@ -17,15 +17,13 @@
 
 **Atenção**
 
-Os inscritos na Facilitação para o REDIVIVO deverão levar:
-1 exemplar da Bíblia - de preferência as traduções:
-A Bíblia de Jerusalém
-Ou
-A Bíblia - Edição revista e atualizada de João Ferreira de Almeida
-O Livro dos Espíritos
-O Evangelho Seguindo o Espiritismo
-O Evangelho comentado por Emmanuel :
-Evangelho de Marcos
-Evangelho de João
+Os inscritos na Facilitação para o Redivivo deverão levar:
+- 1 exemplar da Bíblia - de preferência as traduções:
+- A Bíblia de Jerusalém ou A Bíblia - Edição revista e atualizada de João Ferreira de Almeida
+- O Livro dos Espíritos
+- O Evangelho Seguindo o Espiritismo
+- O Evangelho comentado por Emmanuel :
+- Evangelho de Marcos
+- Evangelho de João
 
 Trata-se de material individual a ser usado nas oficinas.
