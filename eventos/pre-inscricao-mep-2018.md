@@ -1,4 +1,4 @@
-## Para realizar a pré-inscrição [clique aqui](https://docs.google.com/forms/d/e/1FAIpQLSe1gPavHpOypEsYZ8LFg2QRAEnkmUrCGSMJK3_LNTXTHwudpg/viewform?c=0&w=1)
+## Para realizar a pré-inscrição [clique aqui](https://docs.google.com/forms/d/1qqbaVfo6Fxgqm6fhf3DUwXJemobAVm3sSi__CiTs8BY/closedform)
 
 ### Informações importantes:
 
