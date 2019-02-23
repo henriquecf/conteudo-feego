@@ -3,6 +3,8 @@ Tema:
 #### "É pela educação que as gerações se transformam e aperfeiçoam."
 Léon Denis 2013
 
+------
+
 Cursos Infância:
 - Como identificar e lidar com a mediunidade na infância e juventude - Facilitadora: **Rosa Maria**
 - Múltiplas linguagens (formação de novos leitores) - Facilitadora: **Leila Fraga**
