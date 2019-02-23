@@ -14,6 +14,8 @@ Cursos Juventude:
 - Protagonismo Juvenil - Facilitado: **Henrique Kleinkauf**
 - Múltiplas linguagens (formação de novos leitores) - Facilitador: **Marco Antônio**
 
+------
+
 **Seminário: Família** (para todos os participantes)
 **Expositora: Vera Vidal**
 
