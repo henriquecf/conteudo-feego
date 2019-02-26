@@ -3,10 +3,14 @@ Tema:
 #### "É pela educação que as gerações se transformam e aperfeiçoam."
 Léon Denis 2013
 
+------
+
 
 Sábado: **13:00 às 20:30**
 
 Domingo: **7:30 às 12:30**
+
+------
 
 
 Cursos:
