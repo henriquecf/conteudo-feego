@@ -23,6 +23,7 @@ Cursos Juventude:
 ------
 
 **Seminário: Família** (para todos os participantes)
+
 **Expositora: Vera Vidal**
 
 **Obs:** Os cursos serão esclolhidos no local
