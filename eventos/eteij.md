@@ -11,13 +11,11 @@ Domingo: **7:30 às 12:30**
 
 ------
 
-Cursos Infância:
+Cursos:
 - **Como identificar e lidar com a mediunidade na infância e juventude** - Rosa Maria
 - **Múltiplas linguagens (formação de novos leitores)** - Leila Fraga e Marco Antônio
 - **Acessibilidade e Inclusão na evangelização infanto-juvenil** - Márcia Cristina
 - **Evangelização de Bebês** - Cintia Vieira
-
-Cursos Juventude:
 - **Transição da Infância para a Juventude** Juruna Lima
 - **Protagonismo Juvenil** - Henrique Kleinkauf
 
@@ -25,7 +23,8 @@ Cursos Juventude:
 
 **Seminário: Família** (para todos os participantes)
 
-**Expositora: Vera Vidal**
+Expositora: Vera Vidal
+
 
 **Obs:** Os cursos serão esclolhidos no local
 
