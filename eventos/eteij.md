@@ -18,13 +18,11 @@ Cursos:
 - **Múltiplas linguagens (formação de novos leitores)** - Leila Fraga e Marco Antônio
 - **Acessibilidade e Inclusão na evangelização infanto-juvenil** - Márcia Cristina
 - **Evangelização de Bebês** - Cintia Vieira
-- **Transição da Infância para a Juventude** Juruna Lima
+- **Transição da Infância para a Juventude** - Juruna Lima
 - **Protagonismo Juvenil** - Henrique Kleinkauf
 
 
-**Seminário: Família** (para todos os participantes)
-
-Expositora: Vera Vidal
+**Seminário: Família** (para todos os participantes) - Vera Vidal
 
 
 **Obs:** Os cursos serão esclolhidos no local
