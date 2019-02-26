@@ -18,7 +18,7 @@ Cursos Infância:
 
 Cursos Juventude:
 - **Transição da Infância para a Juventude** Juruna Lima
-- **Protagonismo Juvenil - Henrique Kleinkauf
+- **Protagonismo Juvenil** - Henrique Kleinkauf
 
 ------
 
