@@ -3,13 +3,11 @@ Tema:
 #### "É pela educação que as gerações se transformam e aperfeiçoam."
 Léon Denis 2013
 
-------
 
 Sábado: **13:00 às 20:30**
 
 Domingo: **7:30 às 12:30**
 
-------
 
 Cursos:
 - **Como identificar e lidar com a mediunidade na infância e juventude** - Rosa Maria
@@ -19,7 +17,6 @@ Cursos:
 - **Transição da Infância para a Juventude** Juruna Lima
 - **Protagonismo Juvenil** - Henrique Kleinkauf
 
-------
 
 **Seminário: Família** (para todos os participantes)
 
