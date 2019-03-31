@@ -27,3 +27,4 @@ Cursos:
 
 **Obs:** Os cursos serão esclolhidos no local
 
+Qualquer dúvida sobre cadastramento ou inscrições entre em contato pelo whatsapp: (62) 99348-1215 (em horário comercial)
