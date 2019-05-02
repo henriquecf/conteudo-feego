@@ -1,6 +1,7 @@
 • Tema central: AMOR, O MANDAMENTO MAIOR
  
 • Quando: de 22 a 25 de fevereiro de 2020
+
 • Onde: Centro de Convenções de Goiânia
  
 • Palestrantes confirmados até o momento:
