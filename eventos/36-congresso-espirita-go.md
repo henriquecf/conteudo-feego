@@ -18,12 +18,11 @@
 - Congresso Adulto Auditório Lago Azul: R$ 165,00
 - Congresso Jovem: R$ 90,00
 - Congresso da Infância: R$ 70,00
-- Congresso bebê: em definição (por enquanto não informar)
 - Alojamento: R$ 30,00
  
 • Condição de pagamento: somente cartão de crédito
  
 • Informações:
 - e-mail: congresso@feego.org.br
-- Tel: +55 62 3281-0875
-- Whatsapp: +55 62 99348-1215
+- Tel: [(62) 3281-0875](tel:06232810875)
+- Whatsapp: [(62) 99348-1215](tel:062993481215)
