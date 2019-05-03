@@ -20,7 +20,7 @@
 - Congresso da Infância: R$ 70,00
 - Alojamento: R$ 30,00
  
-• Condição de pagamento: somente cartão de crédito
+• Forma de pagamento: somente cartão de crédito
  
 • Informações:
 - e-mail: congresso@feego.org.br
