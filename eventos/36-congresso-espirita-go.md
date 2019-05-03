@@ -1,3 +1,5 @@
+[Clique aqui para realizar a inscrição](https://evento.digital/feego/36cego/principal.php)
+
 • Tema central: AMOR, O MANDAMENTO MAIOR
  
 • Quando: de 22 a 25 de fevereiro de 2020
@@ -26,3 +28,5 @@
 - e-mail: congresso@feego.org.br
 - Tel: [(62) 3281-0875](tel:06232810875)
 - Whatsapp: [(62) 99348-1215](tel:062993481215)
+
+[Clique aqui para realizar a inscrição](https://evento.digital/feego/36cego/principal.php)
