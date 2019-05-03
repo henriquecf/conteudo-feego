@@ -20,6 +20,7 @@
 - Congresso Adulto Auditório Lago Azul: R$ 165,00
 - Congresso Jovem: R$ 90,00
 - Congresso da Infância: R$ 70,00
+- Congresso dos Bebês: R$ 50,00
 - Alojamento: R$ 30,00
  
 • Forma de pagamento: somente cartão de crédito
