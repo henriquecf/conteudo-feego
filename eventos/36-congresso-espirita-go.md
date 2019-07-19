@@ -11,6 +11,7 @@
 - Artur Valadares
 - Divaldo Franco
 - Eulália Bueno
+- Haroldo Dutra Dias
 - Roosevelt Tiago
 - Sérgio Lopes
 - Simão Pedro
